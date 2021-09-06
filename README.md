@@ -1,2 +1,2 @@
-# Omkar Rege HW1
+# Omkar Rege Homework 1
 
